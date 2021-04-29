@@ -7,6 +7,8 @@ In the game sEVEN this is represented by a boy who has lost pieces of his soul a
 
 ![]({{site.baseurl}}//sEvEN%20cover.png)
 
+[Click Here](https://www.youtube.com/watch?v=14EihDaSLn0) to watch a trailer/explanation of sEVEN!
+
 [Click Here](https://www.youtube.com/watch?v=ua5enNWkCis) to watch a play through of the game!
 
 [Click Here](http://www.yourcarsextendedwarranty.com/) to go back to the New Media Senior Show!
